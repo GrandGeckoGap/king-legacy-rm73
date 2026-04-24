@@ -1,4 +1,4 @@
-
+king legacy Script secure is the best king legacy Script, featuring fly and unlimited stamina. Safe and powerful for all your needs.
 
 
 
